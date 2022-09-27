@@ -1,1 +1,1 @@
-# community-projects
+# this is the project of rookies 
